@@ -1,2 +1,1 @@
-something i dont wanna work on
-This is work in progress... Be patient for the full thing..
+This is shit, idk why I made this :D
